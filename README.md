@@ -11,12 +11,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - 😜 hii my name is AbiXynz
--->🐣 my favorite lesson is ipa
+-->🐣 my favorite lesson is Ipa
 my name is AbiXynz
 
 # AbiXynz&nbsp;<img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/happy.gif" width="30px">
 
-<img align="right" alt="My Profile" src="https://telegra.ph/file/526afb7ea6bfe72c36fe8.jpg" width="190" />
+<img align="right" alt="My Profile" src="https://telegra.ph/file/467fad966a5361e1eea0e9d66cfc1687.jpg" width="190" />
 
 ### <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="29px"> *Hello Everyone😊* &nbsp;<img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
 
@@ -63,5 +63,5 @@ my name is AbiXynz
   
   
   
- [<img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Instagram.svg" alt="instagram logo" width="24">](https://www.instagram.com/Zahra_210728/)
+ [<img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Instagram.svg" alt="instagram logo" width="24">](https://www.instagram.com/abityru24)
 
